@@ -428,6 +428,20 @@ For support, email [ xheikhsalman4422@gmail.com ] or join our whatsapp group.
 
  <br><br>
 
+> 💞 Allways Online
+> 🔌 Fake Typeing & Don’t send it back to the sender
+> 🎤 Fake Recording & Don’t send it back to the sender
+> 🖇️ Auto Status Seen & Like
+> 😋 Auto Status Reply
+> 🌈 Auto React
+> 📞 Anti Call
+> 🤖 Mode Change
+> 📥 Media Download Command
+> 🎞️ Send Song For Whatsapp Channels
+> 🤖 Smart AI Command & Auto Chat
+> 🤤18+ Video Downlode
+> 🎀 & many more commands...
+
 
 
 
